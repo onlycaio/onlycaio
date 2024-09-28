@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @onlycaio
-- 👀 I’m interested in philosofy, literature and high-tech things
+- 👀 I’m interested in philosophy, literature and high-tech things
 - 🌱 I’m currently learning web3 development
 - 💞️ I’m looking to collaborate on any web3 projects I am open to colaborate with anyone
 - 📫 How to reach me right here, this will be the only social media that I want to stay active
